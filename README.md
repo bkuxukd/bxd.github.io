@@ -1,2 +1,2 @@
-# kuxuk.github.io
+# bxd.life
 Something in the way~
