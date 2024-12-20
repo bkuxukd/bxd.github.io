@@ -25,7 +25,7 @@ Welcome to my GitHub profile! I'm a passionate developer who loves to explore ne
 
 ## Top Languages
 
-![Top Languages](https://img2.baidu.com/it/u=1954972523,474021974&fm=253&fmt=auto&app=138&f=JPEG?w=667&h=500)
+![Top Languages](https://m1.img.10010.com/resources/504E5F688F956070C3FB31C1BF98ACD0/20241017/png/1729148904230.png)
 
 ## Projects
 
